@@ -1,1 +1,0 @@
-# blakeford1.github.io
